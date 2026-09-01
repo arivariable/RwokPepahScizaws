@@ -1,2 +1,2 @@
 # RwokPapahSCizzas
-simple rwok papah and scizzas game
+simple rwok pepah and scizaws game
